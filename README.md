@@ -1,1 +1,1 @@
-# ashyq---sabaq
+# Ashyq--sabaq
